@@ -6,7 +6,7 @@ Now you need a password.
 
 The gate opens for those who think.
 
-Begin with the legs of a spider.
+Begin with number of the legs of a spider.
 
 Then add the color of night.
 
